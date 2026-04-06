@@ -1,2 +1,2 @@
-                                               Discord link:    https://discord.gg/q6xKVfM9Hh
-                                              Discord username: _randomfemboy_
+Discord link:    https://discord.gg/q6xKVfM9Hh
+                                                     Discord username: _randomfemboy_
